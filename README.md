@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on Discord, Instagram.
 - 📫 How to reach me: Instagram Link:https://www.instagram.com/yamishgoel/
 Discord Username: Yamish@g
-Twitter Username: YAMISH GOEL
 Telegram Name: Yamish Goel
 
 <!---

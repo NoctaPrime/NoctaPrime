@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NoctaPrime
+- 👋 Hi, I’m @Yamishgoel
 - 👀 I’m interested in Technology, Programming, Design Creation, etc.
 - 🌱 I’m currently learning Python and also Java.
 - 💞️ I’m looking to collaborate on Discord, Instagram.

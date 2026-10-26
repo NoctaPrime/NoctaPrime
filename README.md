@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yamishgoel
 - 👀 I’m interested in Technology, Programming, Design Creation, etc.
-- 🌱 I’m currently learning Python and also Java.
+- 🌱 I’m currently learning CyberSecurity.
 - 💞️ I’m looking to collaborate on Discord, Instagram.
 - 📫 How to reach me: Instagram Link:https://www.instagram.com/yamishgoel/
 Discord Username: Yamish@g
